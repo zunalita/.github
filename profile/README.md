@@ -1,4 +1,4 @@
-Made with ❤️ by Luis Antonio
+Made with ❤️ by community!
 
 Zunalita blog is where you can share thoughts, write freely, and explore ideas without limits.
 A space for minimalism, honesty, and pure expression through words.
